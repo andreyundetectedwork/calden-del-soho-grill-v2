@@ -1,1 +1,0 @@
-# calden-del-soho-grill-v2
